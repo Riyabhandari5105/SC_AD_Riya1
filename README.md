@@ -1,1 +1,0 @@
-# SC_AD_Riya1
